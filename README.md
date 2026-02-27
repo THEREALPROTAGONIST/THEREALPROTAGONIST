@@ -1,4 +1,4 @@
-hello lovely people!!! call me yuko or spamton (I go by some hyperfixation names) c+h and int with me freely!! I dont bite ( ＾ω＾ )
+hello lovely people!!! call me yuko or tenna (I go by my hyperfixation names sometimes) c+h and int with me freely!! I dont bite ( ＾ω＾ )
 
 <!--
 **THEREALPROTAGONIST/THEREALPROTAGONIST** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
